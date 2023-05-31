@@ -1,0 +1,7 @@
+theme: jekyll-theme-slate
+title: This is the personal homepage of Jesus Giovanni, an MJSP student of Hokudai.
+description: Some snippets of information, and maybe links, are going to go here.
+plugins:
+  - jemoji
+url: "https://gio-jpg.github.io/"
+markdown: kramdown
