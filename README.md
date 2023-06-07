@@ -5,7 +5,7 @@ I am a first-year student at Hokkaido University, studying under the Modern Japa
 
 ## Drawing
 
-I bought a graphics tablet when I was 17, and attempted some drawings, but I only seriously started drawing when I was was in my 20's, following art studies and tutorials online, mostly in 2022 onwards. Most of my drawings are of characters I made for Dungeons and Dragons and play with my friends. My latest character (shown above) is an owlfolk (called 'owlin' after the latest D&D expansions).
+I bought a graphics tablet when I was 17, and attempted some drawings, but I only seriously started drawing when I was was in my 20's, following art studies and tutorials online, mostly in 2022 onwards. Most of my drawings are of characters I made for Dungeons and Dragons and play with my friends. My latest character (shown above) is an owlfolk, a race of humanoid owls (called 'owlin' after the latest D&D expansions).
 
 ---
 
