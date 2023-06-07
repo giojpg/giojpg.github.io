@@ -11,7 +11,7 @@ I bought a graphics tablet when I was 17, and attempted some drawings, but I onl
 
 ![image](/img/first.png)
 
-This is another such character, a 'mousefolk' which doesn't exist as a choosable race in D&D, but someone online made a custom module to make the race fit in D&D. As you can see here, I made various sketches. This is after I practiced making simple shapes, and then moved on to drawing a 'simple version' of that character. I say 'simple version' because drawing something from the abstract space of my mind, with the limited skills I had, was tough. I just focused on simple features and tried to nail down some personality traits of the character.
+This is another such character, a 'mousefolk' which doesn't exist as a choosable race in D&D, but someone online made a custom module[custom module](https://www.dandwiki.com/wiki/Mousefolk_(5e_Race)) to make the race fit in D&D. As you can see here, I made various sketches. This is after I practiced making simple shapes, and then moved on to drawing a 'simple version' of that character. I say 'simple version' because drawing something from the abstract space of my mind, with the limited skills I had, was tough. I just focused on simple features and tried to nail down some personality traits of the character.
 
 ### Second Drawing
 
