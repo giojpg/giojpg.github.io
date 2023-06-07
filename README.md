@@ -37,6 +37,6 @@ This was my largest and longest project to date. I drew this along Spring 2022. 
 
 ![image](/img/fourth.png)
 
-This is something quite different and more simplistic. I drew this as a gift for the owners of a café in Sapporo near my university. I really love going to this café, and the owners are very kind. My Japanese skills are not at a level I desire them to be (always keeping in mind desires vs. expectations), but as my Japanese gets better, I am able to get to know the owners a little bit more each time I go. To thank them for their kindness and patience with me, I printed, framed and gave them this.
+This is something quite different and more simplistic. I drew this as a gift for the owners of a café in Sapporo near my university. I really love going to this café, and the owners are very kind. My Japanese skills are not at a level I desire them to be (always keeping in mind desires vs. expectations), but as my Japanese gets better, I am able to get to know the owners a little bit more each time I go. To thank them for their kindness and patience with me, I printed this, framed it, and gave it to them.
 
 [@gioandvanni](https://twitter.com/gioandvanni)
